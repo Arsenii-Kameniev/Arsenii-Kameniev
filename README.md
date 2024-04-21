@@ -17,7 +17,7 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **arskameniev@gmail.com**
+- 📫 How to reach me **arskamenev@gmail.com**
 
 - 📄 Know about my experiences [-](-)
 
